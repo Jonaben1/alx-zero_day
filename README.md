@@ -1,1 +1,1 @@
-My first readme
+The quintessence of a vision rejuvenated
